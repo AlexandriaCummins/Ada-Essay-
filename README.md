@@ -17,7 +17,7 @@ My contribution to Ada's vision for an inclusive and diverse community is simple
 
 
 
-#### 4.Tell us about a time you made a mistake that you learned a lot from. If you encountered the situation again, what would you do differently? 
+#### 4. Tell us about a time you made a mistake that you learned a lot from. If you encountered the situation again, what would you do differently? 
 One of the biggest mistakes I've made was being in college and not trying my best. I was stubborn and young, and I snapped between majors like a camera shutter. I studied photography and early childhood education, trying my not-so-best to find direction. After the first year of complete misdirection on my part, I had a revelation. I learned that if I would have entered into my education with a strong focus, I would have had a much more fulfilling and successful experience. 
 
 If I could go back and do it differently, I would have spent much more time considering what path I wanted to choose. In essence, that is what this program symbolizes for me. With a vision in mind, I would put 100% of my effort into what I was doing and would be mindful of the fact that my actions directly correlated to my future, career, life path, and financial status. At this point in my life, I am so excited to feel passionate about a field that is ever-evolving, challenging, and rewarding. 
